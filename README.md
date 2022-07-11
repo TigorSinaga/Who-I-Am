@@ -2,7 +2,7 @@
 - 👀 I’m interested in Music and Technology
 - 🌱 I’m currently learning FrontEnd Developing
 - 💞️ I’m looking to collaborate on GitHUb Community
-- 📫 How to reach me Dm me on Instagram @tigorsnaga
+- 📫 How to reach me: You can Chat me on Instagram @tigorsnaga
 - 
 
 <!---
